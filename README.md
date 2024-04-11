@@ -8,3 +8,4 @@
 bader1000/bader1000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://www.tiktok.com/@kingimportexport?_t=8lRh6vT0Y7s&_r=1
